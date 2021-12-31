@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SnofPlayz
+- 👀 I’m interested in gaming and coding
